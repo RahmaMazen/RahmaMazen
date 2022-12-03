@@ -2,7 +2,7 @@
 - 👀 I’m interested in Human resources 
 - 🌱 I’m currently learning Human resources 
 - 💞️ I’m looking to collaborate on know about Human resources 
-- 📫 How to reach me ...
+- 📫 How to reach me to be more knowledge about Human resources fileds 
 
 <!---
 RahmaMazen/RahmaMazen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
